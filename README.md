@@ -1,6 +1,6 @@
 Hello World! 🤙
 
-My name Nicolò Morando
+My name Nicolò
 
 About me
 
